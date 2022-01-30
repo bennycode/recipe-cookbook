@@ -1,0 +1,4 @@
+- 400ml Mandelmilch
+- 60g Chiasamen
+- 30g Proteinpulver
+- Über Nacht im Kühlschrank lassen
