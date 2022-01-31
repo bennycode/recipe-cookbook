@@ -1,0 +1,6 @@
+- Öl auf den Boden der Auflaufschale geben
+- Rote Beete (am besten NICHT gekocht) in Auflaufform tun
+- Feta reinbröseln
+- Thymian hinzugeben
+- Apfel (sauer) dazu schneiden
+- Alles in den Ofen und schauen wie der Feta verläuft (entscheidet über Ende des Backvorgangs)
