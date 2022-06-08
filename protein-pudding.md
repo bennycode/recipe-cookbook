@@ -1,0 +1,5 @@
+- 600ml Sojamilch (mit Protein angereichert) kurz aufkochen
+- 1 Päckchen Pudding Pulver in die Milch einrühren
+- 50g Protein Pulver einrühren
+- 1 EL Erythrit hinzugeben
+- Video: https://www.youtube.com/watch?v=S6oFBnewXyc
