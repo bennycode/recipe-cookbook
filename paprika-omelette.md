@@ -1,6 +1,6 @@
-## Prapria Omelette
+## Paprika Omelette
 
-- Halbe Paprike häckseln
+- Halbe Paprika häckseln
 - 10 Eier, 180g Gouda (1 Packung), 50ml Milch in weißer Schüssel verrühren
 - Pfanne mit Öl erhitzen (Mittlere Stufe, "2")
 - Verrührtes Ei hinzugeben und 4 Minuten auf "2" in der Pfanne lassen
