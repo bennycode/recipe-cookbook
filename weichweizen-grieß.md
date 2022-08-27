@@ -1,0 +1,8 @@
+- 500 ML Hafermilch
+- 50 Gr Weichweizengrieß
+- 30 Gr Whey
+- 1 großen Löffel Geschmacksbombe Vanille
+- 120 Gr TK Himbeeren
+- 50 ML Wasser
+- 5 Gr Speisestärke
+- https://www.instagram.com/reel/CgClPNFDyBl/
