@@ -1,0 +1,5 @@
+- Kalamata Oliven
+- Wurzelsalat
+- Gurken
+- Tomaten
+- Feta (AgriCert)
